@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LouiseLCG
-- 👀 I’m interested in poetry, music, art and the universe
+- 👀 I’m interested in project management, writing, art and the universe
 - 🌱 I’m currently learning the basics of Coding and UX Design
 - 💞️ I’m looking to collaborate on further learning
 - 📫 How to reach me: via carrier pigeon.
