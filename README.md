@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LouiseLCG
 - 👀 I’m interested in project management, writing, art and the universe
-- 🌱 I’m currently learning the basics of Coding and UX Design
+- 🌱 I’m currently learning the basics of Coding and furthering my UX Design knowledge.
 - 💞️ I’m looking to collaborate on further learning and moving forward in the tech space.
 - 📫 How to reach me: via carrier pigeon or DM here.
 
